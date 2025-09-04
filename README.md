@@ -15,4 +15,4 @@ Just Randomm (Basically Learning)
 * Kelaaa
 * Sugar
 
-*** My major is Cyber Security and I am suffering ***
+***My major is Cyber Security and I am suffering***
