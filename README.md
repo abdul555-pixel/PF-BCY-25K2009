@@ -14,3 +14,5 @@ Just Randomm (Basically Learning)
 * Apple
 * Kelaaa
 * Sugar
+
+*** My major is Cyber Security and I am suffering ***
